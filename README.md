@@ -1,4 +1,4 @@
-- 👀 day day happy =.=
+- 👀 一只菜狗子
 
 <!---
 fufudezheng/fufudezheng is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
